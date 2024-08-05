@@ -1,7 +1,0 @@
-Ecuador's major oil fields are located in Lago Agrio, near Nueva Loja, capital of the Sucumbíos province. Texaco, a multinational oil company, led a consortium with Petroecuador to exploit these fields from 1964 to 1993. During this time, Texaco extracted oil from the country using contaminating and obsolet techniques, similar to those used in the United States. The resulting toxic waste contaminated the surrounding ecosystem, causing the displacement of indigenous communities and an increase in cancer cases, spontaneous abortions, and leukemia in children under four years old.  
-  
-The Unión de Afectados y Afectadas por las Operaciones Petroleras de Texaco (UDAPT) was formed in 1993 to represent indigenous communities and 80 colonas/campesinas in the contaminated area. Chevron Corporation was accused of contaminating the environment and affecting the health of the population due to the use of cheap and obsolet technology during 28 years of exploitation.  
-  
-In 2011, the Supreme Court of Ecuador ratified condenatorial sentencias against Texaco-Chevron, and it was condenada to indemnify 9500 million dollars to the affected communities for environmental reparation, water supply, healthcare system, and etnic reconstruction of the affected nations. However, the Ecuadorian justice system has been unable to fulfill these sentencias, and Chevron has evaded the country's justice system, claiming fraud and corruption.  
-  
-Currently, UDAPT works with various groups worldwide to seek justice and reparation for the damage caused by Texaco-Chevron.
